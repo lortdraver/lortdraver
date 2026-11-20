@@ -32,4 +32,4 @@ Azerbaijani (native) · Russian (C2) · English (C1) · Turkish · German (learn
 
 ### 📫 Contact
 
-[LinkedIn](#) · [GitHub](https://github.com/lortdraver)
+[LinkedIn](https://www.linkedin.com/in/huseyn-aliyev-978203385) · [GitHub](https://github.com/lortdraver)
